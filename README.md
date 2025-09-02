@@ -1,0 +1,1 @@
+# minicurso_cq2025
